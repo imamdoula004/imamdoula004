@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a lot of sectors 
 - 📫 How to reach me: Just DM me 
 - 😄 Pronouns: he/him 
-- ⚡ Fun fact: I can barely understand French 
+- ⚡ Fun fact: I am learning French 
 
 <!---
 imamdoula004/imamdoula004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
